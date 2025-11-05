@@ -1,1 +1,5 @@
-# weeklychart
+# week![IMG-20251105-WA0035](https://github.com/user-attachments/assets/8b23c5de-74a5-4808-9944-61ae009409e2)chart![WhatsApp Image 2025-11-05 at 16 56 37_1876391e](https://github.com/user-attachments/assets/d55b329c-0f7e-4f7b-8685-b3cfbcc62f11)
+![IMG-20251105-WA0034](https://github.com/user-attachments/assets/b8b3d4ea-d7b0-43c6-b200-3bba590e848c)
+![IMG-20251105-WA0033](https://github.com/user-attachments/assets/38594fbb-bdf0-4a16-ac6f-00c4ad381ed7)
+![IMG-20251105-WA0032](https://github.com/user-attachments/assets/382890db-0788-44c9-b74e-938812a2815d)
+![IMG-20251105-WA0031](https://github.com/user-attachments/assets/9901c3d8-5b76-442e-88a7-714260e5cc29)
